@@ -5,5 +5,6 @@
 # ABOUT ME
 
 
+> “ Hot like rising sun, burning everything ~~she~~ he touch. ”
 
 [![blinkie](kvs.svg)](https://github.com/JUDGEMENT-GROUND/kvs.svg)
