@@ -16,4 +16,4 @@
 </details>
 
 <sub>literally just orochi at heart, sorry</sub>
-[![blinkie](kvs.svg)](https://github.com/JUDGEMENT-GROUND/kvs.svg)
+[![blinkie](blinkies.svg)](https://github.com/JUDGEMENT-GROUND/kvs.svg)
