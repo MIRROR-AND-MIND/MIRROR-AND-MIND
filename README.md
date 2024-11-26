@@ -5,4 +5,4 @@
 #      *IN THE NAME OF DARKNESS* 
 
 
-<code style="color : name_color">THIS README IS A WIP</#4b378c>
+<code style="color : purple">THIS README IS A WIP</code>
