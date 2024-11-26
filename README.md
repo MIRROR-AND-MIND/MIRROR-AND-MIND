@@ -5,6 +5,7 @@
 
  <p align="center"> 
  <a href="https://spacehey.com/tajkhn">spacehey</a> • 
+  <a href="https://www.tumblr.com/archnagas?source=share">tumblr</a>  
   <br>
   <blockquote> “ Hot like rising sun, burning everything he touch. ” </blockquote>
  </p>
