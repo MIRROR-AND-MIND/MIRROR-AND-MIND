@@ -20,5 +20,11 @@
 <li>learning web/game dev, artist & occasional ponytowner </li>
 </details>
 
+ 
+<p align="center"><img src="https://komarev.com/ghpvc/?username=shinminase&base=8000&color=9e0000&style=for-the-badge&label=YOU%20ARE%20VISITOR:"></p>
+
+<hr>
+<a href="https://github.com/shinminase/marquee"><img src="images/marquee/red.svg"></a>
+
 
 [![blinkie](kvs.svg)](https://github.com/JUDGEMENT-GROUND/kvs.svg)
