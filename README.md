@@ -15,6 +15,5 @@
 <li>i love many things! hellsing ultimate, onmyoji, transformers, etc! </li>
 </details>
 
-![gif](https://tenor.com/bVoZY.gif)
 <sub>literally just orochi at heart, sorry</sub>
 [![blinkie](kvs.svg)](https://github.com/JUDGEMENT-GROUND/kvs.svg)
