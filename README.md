@@ -3,3 +3,7 @@
 ![div](https://64.media.tumblr.com/b4b8f32bb8200e75efa496f64103f15b/227da40456c2f797-42/s2048x3072/06f49242cba9c157041ceebd5d9eb3619e082ba3.pnj)
 
 # ABOUT ME
+
+
+
+[![blinkie](kvs.svg)](https://github.com/JUDGEMENT-GROUND/kvs.svg)
