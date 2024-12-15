@@ -13,7 +13,8 @@
 
 <li>whisp to int</li>
 <li>BE MY FRIEND ONMYOJI FANS,, PLS also c+h </li>
-<li>i love many things! hellsing ultimate, onmyoji, transformers, etc! </li>
+<li>I like sitting there and lookin pretty.. but HOMICIPHER FANDOM DNI </li>
+<li>i love many things! hellsing ultimate, onmyoji, transformers, mlp, svsss, etc! </li>
 </details>
 
 <sub>literally just orochi at heart, sorry</sub>
