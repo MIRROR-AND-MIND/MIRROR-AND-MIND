@@ -14,7 +14,7 @@
 <li>whisp to int or just talk to me if I'm talking in public chat!</li>
 <li>BE MY FRIEND ONMYOJI FANS,, PLS also c+h </li>
 <li>I like sitting there and lookin pretty.. but HOMICIPHER FANDOM DNI </li>
-<li>i love many things! hellsing ultimate, onmyoji, transformers, mlp, svsss, etc! </li>
+<li>i love many things! hellsing ultimate, onmyoji, transformers, mlp, visual novels, n+c, limbus company, and so on! </li>
 </details>
 
 <sub>literally just orochi at heart, sorry</sub>
