@@ -6,7 +6,7 @@
  <a href="https://spacehey.com/tajkhn">spacehey</a> • 
   <a href="https://www.tumblr.com/archnagas?source=share">tumblr</a>  
   <br>
-  <blockquote> “ His eyes were filled with ambition and conspiracy, just like crackling flames, yet unaware that those flames would consume him into nothingness.. ” </blockquote>
+  <blockquote> “ For demons, spirits and humans, one is most vulnerable when asleep. When the deepest desires manifest and intertwine, they turn into blurry colors. ” </blockquote>
  </p>
 
 
