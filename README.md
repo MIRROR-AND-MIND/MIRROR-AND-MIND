@@ -6,7 +6,7 @@
  <a href="https://spacehey.com/tajkhn">spacehey</a> • 
   <a href="https://www.tumblr.com/archnagas?source=share">tumblr</a>  
   <br>
-  <blockquote> “ Hot like rising sun, burning everything he touch. ” </blockquote>
+  <blockquote> “ His eyes were filled with ambition and conspiracy, just like crackling flames, yet unaware that those flames would consume him into nothingness.. ” </blockquote>
  </p>
 
 
