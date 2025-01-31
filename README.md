@@ -12,7 +12,8 @@
 
 <li>whisp to int or just talk to me if I'm talking in public chat!</li>
 <li>BE MY FRIEND ONMYOJI FANS,, PLS also c+h </li>
-<li>I like sitting there and lookin pretty.. but HOMICIPHER FANDOM DNI </li>
+<li> same goes for limbus or pjm fans.. hii<3 </li>
+<li>I like sitting there and lookin pretty.. </li>
 <li>i love many things! hellsing ultimate, onmyoji, transformers, mlp, visual novels, n+c, limbus company, and so on! </li>
 </details>
 
