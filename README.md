@@ -14,6 +14,7 @@
 <li>BE MY FRIEND ONMYOJI FANS,, PLS also c+h </li>
 <li> same goes for limbus or pjm fans.. hii<3 </li>
 <li>I like sitting there and lookin pretty.. </li>
+ <li>My limbus id is W230285077! I can't guarantee that I'll have the company you're looking for.. sorry</li>
 <li>i love many things! hellsing ultimate, onmyoji, transformers, mlp, visual novels, n+c, limbus company, and so on! </li>
 </details>
 
