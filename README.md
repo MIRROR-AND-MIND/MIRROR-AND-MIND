@@ -3,8 +3,6 @@
 
 
  <p align="center">  
-  <a href="https://www.tumblr.com/archnagas?source=share">tumblr</a>  
-  <br>
   <blockquote> “ For demons, spirits and humans, one is most vulnerable when asleep. When the deepest desires manifest and intertwine, they turn into blurry colors. ” </blockquote>
  </p>
 
