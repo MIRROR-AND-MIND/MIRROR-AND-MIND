@@ -8,12 +8,10 @@
 
 
 <li>whisp to int or just talk to me if I'm talking in public chat!</li>
-<li>BE MY FRIEND ONMYOJI FANS,, PLS also c+h </li>
-<li> same goes for limbus or pjm fans.. hii<3 </li>
+<li>If u like gachiakuta and isnt a weirdo come hang outt! oke? </li>
 <li>I like sitting there and lookin pretty.. </li>
- <li>My limbus id is W230285077! I can't guarantee that I'll have the company you're looking for.. sorry</li>
-<li>i love many things! trigun, mononoke, hellsing ultimate, onmyoji, transformers, mlp, visual novels, n+c, limbus company, and so on! </li>
+<li>i love many things! gachiakuta, trigun, mononoke, hellsing ultimate, onmyoji, transformers, mlp, visual novels, n+c, pjm, and so on! </li>
 </details>
 
-<sub>literally just orochi at heart, sorry</sub>
+<sub>literally just tamsy at heart, sorry</sub>
 [![blinkie](blinkies.svg)](https://github.com/JUDGEMENT-GROUND/kvs.svg)
